@@ -1,1 +1,1 @@
-# my-star-repo
+# MY STAR REPO
